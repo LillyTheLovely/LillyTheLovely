@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LillyTheLovely
-- 👀 I’m interested in advancing my carrer
+- 👀 I’m interested in advancing my career
 - 🌱 I’m currently learning the basics
 - 💞️ I’m looking to collaborate on nothing yet
 - 📫 How to reach me - omgitslillyyay@gmail.com
